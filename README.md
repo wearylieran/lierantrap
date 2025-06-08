@@ -7,7 +7,7 @@ Lieran / William ⚣︎ he/him
 <p align="center">
 ︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶
 <p align="center">
-★ usually ALWAYS with @hexoverthemoon + afk either off tab or playing games ★
+★ usually ALWAYS with @hexoverthemoon + afk either off tab or playing games ! ★
 <p align="center">
 pls dont just send me a friend request... im not gonna accept ✉︎ ៸៸ ᶻᶻᶻ
 <p align="center">
