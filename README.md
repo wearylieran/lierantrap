@@ -13,4 +13,4 @@ pls dont just send me a friend request... im not gonna accept ✉︎ ៸៸ ᶻ�
 <p align="center">
 ︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶
 <p align="center">
-໑ " I wanna hold your hand so tight . . . I'm gonna break my wrist " ໑
+໑ " I wanna hold your hand so tight . . . I'm gonna break my wrist ! " ໑
